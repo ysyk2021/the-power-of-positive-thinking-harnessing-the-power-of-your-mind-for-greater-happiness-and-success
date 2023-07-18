@@ -8,5 +8,4 @@ Through practical exercises, inspiring stories, and expert advice, this book wil
 
 So let's embark on this journey together and discover the transformative power of positive thinking!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
