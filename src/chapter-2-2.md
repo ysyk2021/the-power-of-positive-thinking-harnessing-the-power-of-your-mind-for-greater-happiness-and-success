@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 4: The Science Behind Positive Thinking
+The Science Behind Positive Thinking
 -----------------------------------------------
 
 In this chapter, we delve into the scientific foundations behind positive thinking and examine the fascinating research that supports its transformative effects on our lives. By understanding the science behind positive thinking, we can gain greater insight into the ways our thoughts and mindset shape our experiences and outcomes.

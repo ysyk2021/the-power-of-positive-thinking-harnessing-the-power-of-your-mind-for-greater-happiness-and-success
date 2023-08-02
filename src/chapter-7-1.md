@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 9: Using Positive Thinking to Achieve Goals
+Using Positive Thinking to Achieve Goals
 ---------------------------------------------------
 
 In this chapter, we explore how positive thinking can be harnessed as a powerful tool to set, pursue, and achieve personal and professional goals. By aligning our mindset with positive thinking, we can unlock our potential, overcome obstacles, and create a pathway to success and fulfillment.

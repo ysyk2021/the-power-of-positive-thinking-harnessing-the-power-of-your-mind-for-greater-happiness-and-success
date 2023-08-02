@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 7: Building Resilience Through Positive Thinking
+Building Resilience Through Positive Thinking
 --------------------------------------------------------
 
 In this chapter, we explore the concept of resilience and how positive thinking can be a powerful tool in building and strengthening it. Resilience is the ability to bounce back from challenges, adversity, and setbacks. By cultivating a positive mindset, individuals can enhance their resilience and navigate through life's ups and downs with greater ease and confidence.

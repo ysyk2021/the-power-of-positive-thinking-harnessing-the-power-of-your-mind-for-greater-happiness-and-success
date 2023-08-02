@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 10: The Importance of Positive Thinking for Mental Health and Well-being
+The Importance of Positive Thinking for Mental Health and Well-being
 --------------------------------------------------------------------------------
 
 In this chapter, we explore the vital role of positive thinking in promoting mental health and well-being. By understanding the impact of our thoughts on our emotional state and overall wellness, individuals can harness the power of positive thinking to cultivate a healthy mind and lead a fulfilling life.

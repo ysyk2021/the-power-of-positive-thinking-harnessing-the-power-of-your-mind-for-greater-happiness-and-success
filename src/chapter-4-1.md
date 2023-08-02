@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 9: Building Habits That Support Positive Thinking
+Building Habits That Support Positive Thinking
 ---------------------------------------------------------
 
 In this chapter, we delve into the importance of building habits that support positive thinking. By consciously shaping our daily routines and behaviors, we can foster a positive mindset, enhance our well-being, and experience greater happiness and success in life.

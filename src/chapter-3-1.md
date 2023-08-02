@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 3: Understanding the Power of Mindset
+Understanding the Power of Mindset
 ---------------------------------------------
 
 In this chapter, we dive deep into the concept of mindset and explore its immense power in shaping our lives. By understanding the intricacies of mindset, individuals can harness its potential to transform their thoughts, beliefs, and actions, ultimately leading to greater happiness and success.

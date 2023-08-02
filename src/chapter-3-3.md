@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 7: Strategies for Cultivating a Positive Mindset
+Strategies for Cultivating a Positive Mindset
 --------------------------------------------------------
 
 In this chapter, we explore practical strategies for cultivating a positive mindset. By adopting these techniques and incorporating them into daily life, individuals can harness the power of their minds to cultivate positivity, enhance happiness, and achieve greater success.

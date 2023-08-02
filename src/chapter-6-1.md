@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 6: Using Positive Thinking to Improve Relationships
+Using Positive Thinking to Improve Relationships
 -----------------------------------------------------------
 
 In this chapter, we explore the transformative power of positive thinking in improving our relationships. By harnessing the power of our minds and cultivating a positive mindset, we can enhance our connections with others, foster healthy communication, and create fulfilling and harmonious relationships.

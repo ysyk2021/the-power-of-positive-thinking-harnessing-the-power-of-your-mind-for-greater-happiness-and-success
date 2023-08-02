@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 7: Strategies for Staying Motivated in Positive Thinking
+Strategies for Staying Motivated in Positive Thinking
 ----------------------------------------------------------------
 
 In this chapter, we explore effective strategies that can help individuals stay motivated and maintain a positive thinking mindset. While adopting positive thinking practices is beneficial, it's important to sustain motivation and consistency over time. By incorporating these strategies into daily life, readers can overcome challenges, stay committed, and experience long-lasting positive change.

@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 6: Benefits of Positive Thinking for Mental Health
+Benefits of Positive Thinking for Mental Health
 ----------------------------------------------------------
 
 In this chapter, we explore the remarkable benefits that positive thinking can have on our mental health and well-being. By cultivating a positive mindset and incorporating positive thinking practices into our daily lives, we can experience improved mental resilience, emotional well-being, and overall psychological health.

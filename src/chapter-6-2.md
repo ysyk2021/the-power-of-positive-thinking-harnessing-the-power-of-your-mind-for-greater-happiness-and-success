@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 6: Using Positive Thinking to Improve Career Success
+Using Positive Thinking to Improve Career Success
 ------------------------------------------------------------
 
 In this chapter, we explore the transformative impact of positive thinking on career success. By harnessing the power of our minds and adopting a positive mindset, we can overcome obstacles, unlock our true potential, and thrive in our professional lives.

@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 4: Using Positive Thinking to Improve Health and Well-being
+Using Positive Thinking to Improve Health and Well-being
 -------------------------------------------------------------------
 
 In this chapter, we explore the profound impact of positive thinking on our health and overall well-being. By harnessing the power of our minds and adopting a positive mindset, we can enhance our physical, mental, and emotional well-being, leading to a happier and healthier life.

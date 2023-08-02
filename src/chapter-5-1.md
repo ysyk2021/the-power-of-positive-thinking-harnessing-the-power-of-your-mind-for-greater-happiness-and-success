@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 9: Dealing with Negative Emotions and Thoughts
+Dealing with Negative Emotions and Thoughts
 ------------------------------------------------------
 
 In this chapter, we explore how positive thinking can help individuals effectively deal with negative emotions and thoughts. By understanding and managing their negative experiences, individuals can create a more positive and fulfilling life, leading to greater happiness and success.

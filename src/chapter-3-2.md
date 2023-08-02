@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 5: Identifying Limiting Beliefs and Negative Thought Patterns
+Identifying Limiting Beliefs and Negative Thought Patterns
 ---------------------------------------------------------------------
 
 In this chapter, we delve into the process of identifying limiting beliefs and negative thought patterns that hinder our happiness and success. By understanding and recognizing these mental barriers, individuals can take proactive steps to overcome them and unleash their full potential.

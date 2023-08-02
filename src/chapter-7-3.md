@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 8: Enhancing Creativity and Innovation Through Positive Thinking
+Enhancing Creativity and Innovation Through Positive Thinking
 ------------------------------------------------------------------------
 
 In this chapter, we explore how positive thinking can unlock our creative potential and foster innovation. By cultivating a positive mindset, individuals can overcome creative blocks, think outside the box, and unleash their creativity to achieve greater success and happiness.

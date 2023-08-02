@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 6: Managing Fear and Anxiety During the Journey
+Managing Fear and Anxiety During the Journey
 -------------------------------------------------------
 
 In this chapter, we delve into the importance of managing fear and anxiety when embarking on a journey of positive thinking and personal growth. While pursuing happiness and success, it is common for individuals to encounter fear and anxiety that can hinder progress. By understanding and effectively managing these emotions, readers can navigate challenges with resilience and maintain a positive mindset throughout their journey.

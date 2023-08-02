@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 8: Using Positive Affirmations
+Using Positive Affirmations
 --------------------------------------
 
 In this chapter, we explore the incredible potential of positive affirmations in harnessing the power of our minds for greater happiness and success. By incorporating positive affirmations into our daily lives, we can reprogram our thoughts, beliefs, and attitudes, leading to increased self-confidence, motivation, and optimism.

@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 2: What is Positive Thinking?
+What is Positive Thinking?
 -------------------------------------
 
 In this chapter, we delve into the concept of positive thinking and its profound impact on our overall well-being and success. By understanding what positive thinking entails and how it can transform our lives, we can harness the incredible power of our minds to cultivate happiness, resilience, and achievement.

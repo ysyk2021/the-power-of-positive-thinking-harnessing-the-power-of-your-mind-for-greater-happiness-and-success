@@ -1,7 +1,7 @@
 The Power of Positive Thinking: Harnessing the Power of Your Mind for Greater Happiness and Success
 ===================================================================================================
 
-Chapter 8: Understanding the Connection Between Mindset, Attitude, and Positive Thinking
+Understanding the Connection Between Mindset, Attitude, and Positive Thinking
 ----------------------------------------------------------------------------------------
 
 In this chapter, we explore the profound connection between mindset, attitude, and positive thinking. By understanding how these three elements interact and influence one another, individuals can harness their power to create a life filled with happiness, success, and fulfillment.
