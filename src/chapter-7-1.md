@@ -1,9 +1,6 @@
 Using Positive Thinking to Achieve Goals
 =================================================
 
-Introduction
-------------
-
 In this chapter, we will explore the incredible power of positive thinking and how it can help you achieve your goals. By harnessing the potential of your mind, you can cultivate a positive mindset that propels you towards success and greater happiness. We will discuss practical strategies and techniques that can enable you to overcome obstacles, stay motivated, and reach your desired outcomes.
 
 The Power of Belief

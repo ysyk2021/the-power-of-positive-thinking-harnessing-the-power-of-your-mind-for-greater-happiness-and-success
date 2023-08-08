@@ -1,9 +1,6 @@
 Building Resilience Through Positive Thinking
 =============================================
 
-Introduction
-------------
-
 Resilience is the ability to bounce back and adapt in the face of adversity. It is a crucial trait that can greatly influence our happiness and success in life. By harnessing the power of positive thinking, we can strengthen our resilience and overcome challenges with grace and determination. In this chapter, we will explore practical strategies and techniques to build resilience through the power of positive thinking.
 
 Understanding Resilience

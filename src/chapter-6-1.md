@@ -1,9 +1,6 @@
 Using Positive Thinking to Improve Relationships
 =========================================================
 
-Introduction
-------------
-
 Positive thinking is a powerful tool that can transform our relationships, enhancing happiness and success. By adopting a positive mindset, we can improve communication, strengthen connections, and build fulfilling relationships with others. In this chapter, we will explore various strategies and techniques to harness the power of positive thinking in order to enhance our relationships.
 
 Understanding the Power of Positivity

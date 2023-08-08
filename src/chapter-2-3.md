@@ -1,9 +1,6 @@
 Benefits of Positive Thinking for Mental Health
 ========================================================
 
-Introduction
-------------
-
 In this chapter, we will explore the profound impact of positive thinking on our mental health. By harnessing the power of our minds, we can cultivate a positive mindset that has numerous benefits for our overall well-being and happiness.
 
 Understanding Positive Thinking
