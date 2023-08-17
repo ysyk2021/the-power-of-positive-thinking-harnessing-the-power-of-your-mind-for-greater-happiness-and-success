@@ -1,8 +1,6 @@
 Using Positive Thinking to Improve Career Success
 ============================================================
 
-*Believe in Your Abilities and Set Clear Goals*
-
 Positive thinking plays a significant role in achieving career success. By harnessing the power of your mind and adopting a positive mindset, you can enhance your performance, overcome obstacles, and unlock your full potential. In this chapter, we will explore how positive thinking can be utilized to improve your career success.
 
 **1. Cultivate a Positive Mindset**

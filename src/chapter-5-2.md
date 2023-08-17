@@ -1,10 +1,6 @@
 Managing Fear and Anxiety During the Journey
 =======================================================
 
-*"Fear is only as deep as the mind allows." - Japanese Proverb*
-
-
-
 In our journey towards greater happiness and success, it's important to acknowledge that fear and anxiety can often hinder our progress. These emotions have the potential to hold us back from reaching our true potential and experiencing the fulfillment we desire. However, by understanding and managing our fears, we can overcome these obstacles and continue on our path with confidence and resilience.
 
 Understanding Fear and Anxiety
