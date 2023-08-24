@@ -1,5 +1,3 @@
-Part III: Taking Action towards Positive Thinking
-=================================================
 
 While cultivating a positive mindset and attitude is important, it is also essential to take action towards positive thinking. In this section, we will explore some practical strategies for incorporating positive thinking into your daily life.
 

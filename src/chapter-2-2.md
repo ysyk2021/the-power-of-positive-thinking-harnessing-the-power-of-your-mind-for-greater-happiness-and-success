@@ -1,5 +1,3 @@
-The Science Behind Positive Thinking
-====================================
 
 Positive thinking has long been hailed as a powerful tool for achieving greater happiness and success in life. But what exactly is the science behind this seemingly magical phenomenon? In this chapter, we will delve into the scientific principles that underpin positive thinking and explore how it can profoundly impact our lives.
 

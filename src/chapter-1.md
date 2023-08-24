@@ -1,5 +1,3 @@
-Introduction
-============
 
 Positive thinking is a powerful tool for achieving greater happiness and success in all aspects of life. By intentionally shifting our thoughts and emotions towards positivity and possibility, we can unlock our full potential and achieve greater fulfillment and success. In this book, we will explore the foundations of positive thinking, its benefits for mental health and well-being, and strategies for cultivating a more positive mindset.
 

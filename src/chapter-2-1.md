@@ -1,5 +1,3 @@
-What is Positive Thinking?
-=====================================
 
 Positive thinking is a powerful mindset that can greatly impact our lives, leading to greater happiness and success. It involves focusing on the positive aspects of life, cultivating an optimistic outlook, and maintaining a constructive attitude towards challenges and setbacks.
 

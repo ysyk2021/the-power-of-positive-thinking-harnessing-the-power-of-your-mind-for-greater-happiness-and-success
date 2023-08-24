@@ -1,5 +1,3 @@
-Part II: Developing a Positive Mindset
-======================================
 
 Developing a positive mindset is essential for achieving greater happiness and success in all aspects of life. In this section, we will explore the science behind mindset, how to identify limiting beliefs and negative thought patterns, and strategies for cultivating a positive mindset.
 

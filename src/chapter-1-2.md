@@ -1,5 +1,3 @@
-Understanding the Connection between Mindset, Attitude, and Positive Thinking
-======================================================================================
 
 In this chapter, we will explore the fundamental connection between mindset, attitude, and positive thinking. We will delve into how these three elements intertwine and influence each other, ultimately impacting our happiness and success in life.
 

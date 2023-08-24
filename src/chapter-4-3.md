@@ -1,5 +1,3 @@
-Using Positive Affirmations
-====================================
 
 In this chapter, we will explore the transformative power of positive affirmations and how they can greatly impact our mindset, happiness, and success. By harnessing the power of our minds through positive affirmations, we can create a more optimistic outlook on life and cultivate a greater sense of self-belief.
 

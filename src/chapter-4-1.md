@@ -1,5 +1,3 @@
-Building Habits that Support Positive Thinking
-=======================================================
 
 Positive thinking is not just a state of mind; it is a way of life. In this chapter, we will explore the importance of building habits that support positive thinking. By developing these habits, you can cultivate a more optimistic mindset and enhance your overall happiness and success.
 

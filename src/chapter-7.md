@@ -1,5 +1,3 @@
-Part VI: The Power of Positive Thinking and Success
-===================================================
 
 Positive thinking is a powerful tool for achieving greater happiness and success in all aspects of life. In this section, we will explore some specific ways that positive thinking can lead to success.
 

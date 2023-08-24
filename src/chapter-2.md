@@ -1,5 +1,3 @@
-Part I: Foundations of Positive Thinking
-========================================
 
 Positive thinking is a powerful tool for achieving greater happiness and success in all aspects of life. In this section, we will explore the foundations of positive thinking, the science behind it, and its benefits for mental health.
 

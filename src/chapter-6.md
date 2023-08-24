@@ -1,5 +1,3 @@
-Part V: Applying Positive Thinking to Specific Life Scenarios
-=============================================================
 
 While positive thinking can benefit all areas of life, there are specific scenarios where it can be particularly helpful. In this section, we will explore some ways to apply positive thinking to improve relationships, career success, and health and well-being.
 

@@ -1,5 +1,3 @@
-Identifying Limiting Beliefs and Negative Thought Patterns
-===================================================================
 
 In this chapter, we will explore the importance of identifying and addressing limiting beliefs and negative thought patterns. Our thoughts have a powerful impact on our emotions, behaviors, and overall well-being. By recognizing and challenging these patterns, we can unlock our true potential and cultivate a more positive mindset.
 

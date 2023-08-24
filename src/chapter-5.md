@@ -1,5 +1,3 @@
-Part IV: Overcoming Obstacles and Challenges in Positive Thinking
-=================================================================
 
 While cultivating a positive mindset and attitude can lead to numerous benefits, it is not always easy. In this section, we will explore some common obstacles and challenges that can arise in the practice of positive thinking, as well as strategies for overcoming them.
 

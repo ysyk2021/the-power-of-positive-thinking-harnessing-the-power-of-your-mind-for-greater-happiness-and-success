@@ -1,5 +1,3 @@
-Practicing Gratitude and Appreciation
-========================================================================================
 
 Practicing gratitude and appreciation is an effective way to cultivate positive thinking and improve our overall well-being. In this part, we will explore the benefits of practicing gratitude and appreciation, how to incorporate these practices into our daily lives, and how they can lead to greater happiness and success.
 

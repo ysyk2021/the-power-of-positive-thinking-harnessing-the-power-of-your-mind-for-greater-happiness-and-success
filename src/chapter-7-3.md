@@ -1,5 +1,3 @@
-Enhancing Creativity and Innovation through Positive Thinking
-======================================================================
 
 In today's fast-paced and competitive world, creativity and innovation are crucial for personal and professional success. The ability to think outside the box, generate new ideas, and solve problems creatively can give individuals a significant advantage. One powerful tool that can enhance creativity and innovation is positive thinking. In this chapter, we will explore how positive thinking can foster creativity and innovation by cultivating a growth mindset, encouraging risk-taking, and promoting collaboration.
 
