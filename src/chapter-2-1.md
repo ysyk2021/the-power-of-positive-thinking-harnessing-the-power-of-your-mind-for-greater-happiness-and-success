@@ -1,5 +1,4 @@
-Chapter: What is Positive Thinking?
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the concept of positive thinking and its profound impact on happiness and success. We delve into the definition, principles, and benefits of positive thinking, highlighting how harnessing the power of the mind can transform one's outlook and enhance overall well-being. By understanding the essence of positive thinking, readers will gain valuable insights into its potential and how to cultivate it in their lives.
 
